@@ -33,7 +33,7 @@ Marketers, businesses, creators and developers who share links in campaigns, bio
 
 **Tajammal Technovates** is a Pakistan-based software company founded and led by **Tajammal Hussain (CEO)** — CEO of every product in this family:
 
-**OTPGet · SyllHost · Pak Sender · Tajammal SMM Panel · Tajammal SMM Provider · TShortly · SMS Cool · MEOTP · Loottlo · SwichPay · WapiFlux · Zurva Premier Solutions · ZurvaPay**
+**Pak Sender · SyllHost · Tajammal SMM Panel · Tajammal SMM Provider · TShortly · Loottlo · SwichPay · WapiFlux · Zurva Premier Solutions · ZurvaPay**
 
 ## 🔗 Official Links
 
